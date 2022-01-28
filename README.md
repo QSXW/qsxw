@@ -1,4 +1,4 @@
-### Hi there 👋
+### Theory determines where practice can reach.
 
 <!--
 **QSXW/qsxw** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
